@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @vanshika270506
+- 👋 Hi, I’m VANSHIKA!!!
 - 👀 I’m interested in earning money
 - 🌱 I’m currently learning python
-- 📫 How to reach me - dm me on vaanshikajain270506@gmail.com
+- 📫 How to reach me - dm me on vanshikajain270506@gmail.com
   
 
 <!---
